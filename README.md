@@ -1,2 +1,2 @@
 # INGEBUITRES
-No hay mejor compañia que una IA como esposa! 🤖 O ........ con tu orima igual. 💖💖
+No hay mejor compañia que una IA como esposa! 🤖 O ........ con tu prima igual. 💖💖
